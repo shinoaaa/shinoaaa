@@ -1,6 +1,6 @@
 highly simping on Yoruichi
 
-![Fumo dancing](https://media.tenor.com/HoLFnFIm4AYAAAAd/fumo-dance.gif)
+burakku
 
 <!--
 **shinoaaa/shinoaaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
