@@ -1,6 +1,6 @@
 highly simping on Yoruichi
 
-![My cool gif]([https://media.giphy.com/media/3o7abB06u9bNzA8lu8/giphy.gif](https://forums.terraria.org/data/avatars/o/61/61772.jpg?1486487161))
+![My cool gif]([https://media.giphy.com/media/3o7abB06u9bNzA8lu8/giphy.gif](https://forums.terraria.org/data/avatars/o/61/61772.jpg?1486487161](https://tenor.com/bJzYM.gif))
 
 <!--
 **shinoaaa/shinoaaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
