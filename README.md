@@ -1,6 +1,6 @@
 highly simping on Yoruichi
 
-![Fumo Plush](https://i.imgur.com/abc123.gif)
+![fumo gif](https://raw.githubusercontent.com/shinoaaa/nigabil/main/tenor.gif)
 
 <!--
 **shinoaaa/shinoaaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
