@@ -1,7 +1,10 @@
 highly simping on Yoruichi
 
-burakku
-![fumo](https://media.tenor.com/HoLFnFIm4AYAAAAd/fumo-dance.gif)
+![Fumo Plush](https://media.tenor.com/xvNSJXYxL7EAAAAC/fumo-fumo.gif)
+<p align="center">
+  <img src="https://media.tenor.com/xvNSJXYxL7EAAAAC/fumo-fumo.gif" width="300" />
+</p>
+
 
 <!--
 **shinoaaa/shinoaaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
