@@ -1,10 +1,6 @@
 highly simping on Yoruichi
 
-![Fumo Plush](https://media.tenor.com/xvNSJXYxL7EAAAAC/fumo-fumo.gif)
-<p align="center">
-  <img src="https://media.tenor.com/xvNSJXYxL7EAAAAC/fumo-fumo.gif" width="300" />
-</p>
-
+![Fumo Plush](https://i.imgur.com/abc123.gif)
 
 <!--
 **shinoaaa/shinoaaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
